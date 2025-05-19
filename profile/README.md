@@ -4,6 +4,8 @@
 
 **Shell Shockers** is a **legendary online multiplayer shooter** where players take on the role of **armed eggs** in **explosive first-person combat**. Imagine a world where your shell is your armor and yolk is your life – and every shot counts.
 
+## <a href="https://1kb.link/Q93gLr">👉 Play Shell Shockers Unblocked Games NOW 👈</a>
+
 You play in a **hyper-fast battlefield**, blasting opponents with **crazy weapons** like the EggK-47, Scrambler, or RPEGG. Whether you're a **fearless warrior** or a **sneaky sniper**, Shell Shockers turns the battlefield into a **blazing egg arena**.
 
 ---
